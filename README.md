@@ -3,9 +3,9 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=098c77&width=435&lines=So+Many+Souls+To+Play+With+.+.;So+Little+Time+.+.+.+Wouldn't+You+Agree+?;Dont.+Run.+.+Stay+With+Me;Your+TOO+Slow;Ready+For+Round+2+?;Found+You+.+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=700&color=025379&width=435&lines=So+Many+Souls+To+Play+With+.+.;So+Little+Time+.+.+.+Wouldn't+You+Agree+?;Dont.+Run.+.+Stay+With+Me;Your+TOO+Slow;Ready+For+Round+2+?;Found+You+.+.)](https://git.io/typing-svg)
 
-![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=027279&label=Out+Of+Lives)
+![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=023579&label=Out+Of+Lives)
 
 
 <p align="center">HIA!! please follow me, on the road to 300 !! - If not thats okay! i still love ya <3
