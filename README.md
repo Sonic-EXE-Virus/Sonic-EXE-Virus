@@ -14,6 +14,8 @@
  
  <p align="center">IF you sneeze on me in game i will hide you fully for 15 mins
 
+<p align="center">I am turning 18 SOON. if your a minor PLEASE IWEC.
+
 <p align="center">My names LJ, Soda, Sonic or Monty!- or whatever you wanna call me! I go by the pronouns She/Her, i wear glasses so dont mind if im a bit BLIND, i have ADHD and a bit of autisim so please dont mind me if im a bit slow, i Can get very upset over some small things that i dont like talking about so please dont mind me, if your rude to me or just racist or anytype of phobic [besides the bad ones] i will freely block you for a cupple of days
 
 <p align="center">Im usully hanging out with friends or sitting alone, but dont fret come cuddle with me! i enjoy it just make sure to tell me first, im really nice i dont mind talking about stuff that you want to!
