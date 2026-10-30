@@ -34,7 +34,7 @@
 
 
 
-<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , Hello Neighbor , Lego , Scream , Sonic.EXE , Mr. Hopps Playhouse , - TBC
+<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , Hello Neighbor , Lego , Scream , Sonic.EXE , Mr. Hopps Playhouse , Dark Deception , Popee the Performer ,  - TBC
 
 <p align="center">NUMBER ONE FRIEND EVER!!!!!-  OLLIE  -
 
